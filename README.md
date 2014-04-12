@@ -1,4 +1,0 @@
-git-alii
-========
-
-IM SO SICK OF HAVING TO WRITE THESE THINGS
